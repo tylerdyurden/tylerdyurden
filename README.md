@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tylerdyurden
-- 👀 I’m interested in hip hop msic 
+- 👀 I’m interested in rythms and poetry 
 - 🌱 I’m currently learning rap and how to write a song 
 - 💞️ I’m looking to collaborate on spotify
 - 📫 How to reac
